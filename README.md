@@ -1,0 +1,2 @@
+# 1.-Tu-idea-en-pocas-palabras-Nombre-tu-proyecto-y-preparate-para-escribirlo-brevemente.-Nombre-de-Po
+Carwashs Alta Gama" mi proyecto es.una pequeña Empresa, este mi trabajo lo que realizo en la.modalidad  y con el objetivo es estructurar una empresa  dedicado a la prestacion del servicio de lavado de Vehículo, bajo los conceptos rapidez, calidad y bajo costo ofreciendo a su cliente una membrasia con cual prestará el servicio de manera ilimitada durante la vigencia del pago Setvicio de Lavados Coches. 
